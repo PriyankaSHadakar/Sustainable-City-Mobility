@@ -1,6 +1,6 @@
 ## Portfolio
 
-### Hello, I'm [Priyanka.S.Hadakar] 👋
+### Hello, I'm [Priyanka S Hadakar] 👋
 
 I am passionate about technology and problem-solving. Here's a glimpse of my work:
 
