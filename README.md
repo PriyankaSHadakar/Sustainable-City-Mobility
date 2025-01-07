@@ -15,7 +15,7 @@ I am passionate about technology and problem-solving. Here's a glimpse of my wor
 
 ## 🌐 Find Me Online
 - [GitHub](https://github.com/your-github-PriyankaSHadakar)
-- [LinkedIn]()
+- [LinkedIn](https://www.linkedin.com/in/priyanka-hadakar-36479a2a9?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 ## Portfolio Topic
 
